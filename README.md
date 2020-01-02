@@ -1,1 +1,1 @@
-1. [paneer made by me](https://priyankaMD.github.io/LearningBlogs/X_MasPaneer)
+1. [paneer made by me](https://priyankaMD.github.io/PD-Articles/X_MasPaneer)
