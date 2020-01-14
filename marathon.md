@@ -14,6 +14,6 @@ Like this, we completed the marathon in 45 minutes. That feeling was very awesom
 After finishing running we had breakfast of sandwiches, bananas, and tea which is provided there for runners. 
 We also got the medal for the completion of the marathon. <br />
 
-Here is my favorite part, we took selfies after completion of the marathon with the board of 'I am finishers...'. 
+Here is my favorite part, we took selfies after completion of the marathon with the banner of 'I am finishers...'. 
 The best part was we got a chance to took a selfie with Persistent's MD "Mr.Anand Deashpande". 
 We enjoyed a lot as well as we were took one step ahead to fitness.<br />
