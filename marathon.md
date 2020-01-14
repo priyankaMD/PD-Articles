@@ -2,7 +2,7 @@
 ## We are finishers...
 
 On Sunday morning, we woke up early in the morning because we had a marathon at 6:45 AM which was organized by Persistent 
-Systems. We woke up at 5 PM and we got ready for the run. We reached the Persistent office which is located at SB Road 
+Systems. We woke up at 5 AM and we got ready for the run. We reached the Persistent office which is located at SB Road 
 at 6:30 AM. We were excited about the marathon.<br />
 
 There were three categories for marathon 3 KM, 5 KM, and 10 KM. We were registered for 5 KM run. Exactly at 6:45 AM, 
